@@ -1,5 +1,5 @@
 # :wave: ♥I am Jessi, nice to meet you
-## :earth_americas: originally from Argentina and currently living in Berlin.##
+## :earth_americas: originally from Argentina and currently living in Berlin.
 
 - :mortar_board: **what is my profession?**  
     I have a degree in **Tourism**.
